@@ -8,3 +8,5 @@ Maldonado Montenegro Pablo Alejandro
 Yamberla Marcillo Justin Alexis
 
 Masabanda Castro Rommel Paul
+
+Perez Nieto Cristopher Santiago
