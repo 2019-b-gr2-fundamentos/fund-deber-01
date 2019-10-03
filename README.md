@@ -21,4 +21,4 @@ Arteaga Satian Bryan David
 
 Zapata Espinosa William Isaac
 
-Llano Tumbaco Jenny Lizeth
+Llano Tumbaco Jenny Lizeth 
