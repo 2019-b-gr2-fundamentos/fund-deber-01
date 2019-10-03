@@ -14,3 +14,4 @@ Perez Nieto Cristopher Santiago
 Velastegui Santamaria Alex Daniel
 
 Coloma Solis Carlos Adrian
+Rodríguez Machado 
