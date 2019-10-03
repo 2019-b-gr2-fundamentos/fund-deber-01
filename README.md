@@ -10,3 +10,5 @@ Yamberla Marcillo Justin Alexis
 Masabanda Castro Rommel Paul
 
 Perez Nieto Cristopher Santiago
+
+Velastegui Santamaria Alex Daniel
