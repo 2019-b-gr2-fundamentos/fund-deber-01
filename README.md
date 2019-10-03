@@ -20,4 +20,5 @@ Rodríguez Machado Francisco Xavier
 Arteaga Satian Bryan David 
 
 Zapata Espinosa William Isaac
+
 Gómez Tipantiza Ludwing Jair 
