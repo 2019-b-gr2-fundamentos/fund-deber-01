@@ -16,4 +16,5 @@ Velastegui Santamaria Alex Daniel
 Coloma Solis Carlos Adrian
 
 Rodríguez Machado Francisco Xavier 
- 
+
+Arteaga Satian Bryan David 
