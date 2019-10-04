@@ -22,4 +22,5 @@ Arteaga Satian Bryan David
 Zapata Espinosa William Isaac
 
 Llano Tumbaco Jenny Lizeth 
-Pillajo  Pijal  Ariel Marcelo
+
+Pillajo-Pijal-Ariel-Marcelo
