@@ -29,7 +29,7 @@ Aimacaña-Checa-Daniel-Efrain
 
 Gómez Tipantiza Ludwing Jair
 
-
+Ramos Acaro Kevin David
 
 Garrido-Quinde-Daniel-Wladimir
 
