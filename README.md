@@ -28,3 +28,5 @@ Pillajo-Pijal-Ariel-Marcelo
 Aimacaña-Checa-Daniel-Efrain
 
 Gómez Tipantiza Ludwing Jair
+
+Padilla Molina Renato Fabricio
