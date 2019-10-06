@@ -29,4 +29,7 @@ Aimacaña-Checa-Daniel-Efrain
 
 Gómez Tipantiza Ludwing Jair
 
-Padilla Molina Renato Fabricio
+
+
+Garrido-Quinde-Daniel-Wladimir
+
