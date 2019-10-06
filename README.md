@@ -27,7 +27,10 @@ Pillajo-Pijal-Ariel-Marcelo
 
 Aimacaña-Checa-Daniel-Efrain
 
+
 Gómez-tipantiza-ludwing-jair 
+Gómez-Tiapntiza-Ludwing-Jair
+
 
 Ramos_Acaro_Kevin_David
 
