@@ -35,4 +35,4 @@ Garrido-Quinde-Daniel-Wladimir
 
 Santamaria-Herrera-Lizbeth-Adriana
 
-Ariel Thomás
+Rosero Peñaherrera Ariel Thomás
