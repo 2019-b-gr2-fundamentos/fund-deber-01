@@ -34,3 +34,5 @@ Ramos_Acaro_Kevin_David
 Garrido-Quinde-Daniel-Wladimir
 
 Santamaria-Herrera-Lizbeth-Adriana
+
+Rosero Peñaherrera
