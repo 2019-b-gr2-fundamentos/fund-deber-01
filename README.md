@@ -36,3 +36,5 @@ Garrido-Quinde-Daniel-Wladimir
 Santamaria-Herrera-Lizbeth-Adriana
 
 Rosero Peñaherrera Ariel Thomás
+
+Alquinga Chuquimarca Jefferson Gilberto 
