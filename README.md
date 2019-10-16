@@ -42,3 +42,5 @@ Alquinga Chuquimarca Jefferson Gilberto
 Romero Meneses Daniela Alexandra
 
 Enriquez Salinas Adriana Lizzette
+
+Pullotasig Cando Diego Armando
