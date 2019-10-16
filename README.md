@@ -39,4 +39,6 @@ Rosero Peñaherrera Ariel Thomás
 
 Alquinga Chuquimarca Jefferson Gilberto 
 
+Romero Meneses Daniela Alexandra
+
 Enriquez Salinas Adriana Lizzette
