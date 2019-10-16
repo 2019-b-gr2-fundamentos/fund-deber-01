@@ -38,3 +38,5 @@ Santamaria-Herrera-Lizbeth-Adriana
 Rosero Peñaherrera Ariel Thomás
 
 Alquinga Chuquimarca Jefferson Gilberto 
+
+Romero Meneses Daniela Alexandra
